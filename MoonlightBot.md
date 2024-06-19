@@ -2,7 +2,7 @@
 - 👀 I’m interested in The Darkness.🖤
 - 👿 I’m currently learning Bot Demonology.😈
 - 💞️ I’m looking to collaborate on my own businesses.💲
-- 📫 How to reach me: With the ritual of invocation to the queen of the underworld ⛥🌝⛧
+- 📫 How to reach me: With the ritual of invocation of the goddess of the underworld. ⛥🌝⛧
 - 😄 Pronouns: ☽⛥𝔇𝔵𝔯k🖤𝔊ɨ𝔯𝔩⛧☾
 - ⚡ Fun fact: . ✦ ⁺ . ⁺⛥₊ ⋆ ⁺ ☾ ⁺ ⋆ ₊⛧⁺ . ⁺ ✦ .
 
